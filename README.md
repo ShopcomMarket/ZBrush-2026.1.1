@@ -12,7 +12,7 @@ https://www.shopcom.tn/product/zbrush-2026-1-1/
 Product Price : 1,030 $
 
 Payment :
-https://www.shopcom.tn/payment
+https://www.shopcom.tn/payments
 
 Website :
 https://www.shopcom.tn
